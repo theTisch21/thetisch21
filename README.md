@@ -1,9 +1,9 @@
 # Hi everyone!
 
-Thanks for dropping by! Better website coming soon™️
+Thanks for dropping by! Better website coming Soon™️
 
-# One More Loop
+# Cello concert
 
-The One More Loop concert will be:
+Sam’s cello + looper concert will be:
 
 **Date TBD! Check back tomorrow afternoon!**
