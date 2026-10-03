@@ -1,6 +1,6 @@
 # Hi everyone!
 
-Thanks for dropping by! Bette website coming soon™️
+Thanks for dropping by! Better website coming soon™️
 
 # One More Loop
 
