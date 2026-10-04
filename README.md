@@ -6,4 +6,8 @@ Thanks for dropping by! Better website coming Soon™️
 
 Sam’s cello + looper concert will be:
 
-**Date TBD! Check back tomorrow afternoon!**
+Friday October 16th at 10am!
+
+Hosted at Emmanuel Lutheran Church: https://elcpvaz.org
+
+See you there!
